@@ -1,0 +1,1 @@
+# Tugas-Matkul-Kecerdasan-Artifisial-Untuk-Geofisika
